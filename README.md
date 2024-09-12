@@ -16,7 +16,7 @@
 
 [`ℹ️Contact Owner`](https://wa.me/message/UTQ7TX2M7TDYM1)
 
-[!`FORK KINGFREDIE`](https://github.com/HANSTZ3/HANSTZ) 
+[!`FORK HANSTZ`](https://github.com/HANSTZ3/HANSTZ) 
 
 Now Deploy
     <br>
